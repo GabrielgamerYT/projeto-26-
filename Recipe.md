@@ -1,0 +1,1 @@
+coloque leite condensado na panela, em seguida coloque uma colher de sopa de manteiga, e nescau a parte, misture muito bem até engrossar e criar consistencia, depois espere esfriar, coloque em um prato ou vasilha, e leve à geladeira por 30 minutos, ou até ficar no ponto.
